@@ -1,1 +1,0 @@
-# Risale-i-Nur-Okuma-Program-
